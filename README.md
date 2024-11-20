@@ -1,0 +1,2 @@
+# belajardulu
+mining
